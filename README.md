@@ -1,0 +1,2 @@
+# parasha
+barkovsky ne znaet
